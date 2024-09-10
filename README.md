@@ -1,4 +1,4 @@
-Trunin Kirill EFBO-04-22  
+Трунин Кирилл ЭФБО-04-22  
 Desktop device:  
 ![image](https://github.com/user-attachments/assets/a17e8bae-c6b5-43f8-8e20-a47d5da22a8b)
 
